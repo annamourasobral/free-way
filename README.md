@@ -6,7 +6,8 @@ You can find pictures and sounds used on the game in Free Way.zip .
 
 
 
-https://user-images.githubusercontent.com/71239376/153390496-b741a92b-f4c6-4abd-8aa2-c0f4b0b75a5c.mp4
+https://user-images.githubusercontent.com/71239376/153394931-70d239de-0241-46de-a40b-9d495abd7247.mp4
+
 
 
 
